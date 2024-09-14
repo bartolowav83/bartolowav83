@@ -10,7 +10,7 @@
 
 ###
 
-<p align="left">👑 Owner of : BartoloBooSMP (MC server), Learning programming languages...<br>❤ Love : Garfield, lasgnas, old Roblox revivals.<br>💔 Hate : French Gorilla Tag community.</p>
+<p align="left">👑 Owner of : BartoloBooSMP (MC server), Learning programming languages...<br>❤ Love : Garfield, lasgnas, old Roblox revivals.<br>💔 Hate : French Gorilla Tag community.<br>📚 Learning programming language...</p>
 
 ###
 
